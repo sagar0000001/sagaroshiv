@@ -1,4 +1,5 @@
-Jai Bhole Ki ![damru (2)](https://user-images.githubusercontent.com/92321286/136817722-3957c06f-3558-44b7-90af-3f0bf7c189ec.png)
+Jai Bhole Ki ![damru (1)](https://user-images.githubusercontent.com/92321286/136817855-43c784ae-3844-4344-ab08-4cbc0a4e0059.png)
+
 
 
 
